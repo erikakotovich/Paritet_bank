@@ -1,0 +1,1 @@
+# Paritet_bank
